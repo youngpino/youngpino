@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Pinocchio.
+- 🌱 I’m currently working as a Designer and Front-end Developer!
+- 📫 My Telegram: @youngpino
